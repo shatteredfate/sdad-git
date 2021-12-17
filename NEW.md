@@ -1,1 +1,0 @@
-Chto-to novoe
